@@ -1,0 +1,1 @@
+# Ethical-and-Legal-Implications-of-Generative-AI-in-Creative-Works-and-Industries
